@@ -1,0 +1,1 @@
+# Curriculo para praticar aprendizado em sala de aula.
